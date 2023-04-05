@@ -1,1 +1,1 @@
-# Team-Scholar-s-Mate-
+# Team-Scholars-Mate-
